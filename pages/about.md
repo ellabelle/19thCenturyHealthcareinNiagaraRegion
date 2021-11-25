@@ -23,3 +23,9 @@ While looking through our exhibition you can uncover how much hospitals have cha
 We have also chosen to include a few photos of the Stephenson House and the St. Catherines Well for their contribution to healthcare in the form of mineral springs. In the 19th century in the Niagara Region many people would travel here to reap the benefits of the mineral spring water, as it was believed they had healing properties. While minerals are not popular for medical healing anymore, we still see them being used in spas for relaxation, physical, and mental rest.  
 
 After looking through our exhibition we hope to show how differently healthcare looked in the 19th century. We’d like to draw specific attention to the construction of photographs and what it can tell us about Niagara's past. We must always consider that photographs can only hold a certain amount of “truth” and that each of these photos were carefully considered and constructed which can change their meanings. We must also consider who is left out of the images, who is being disadvantaged, who is advantaged, and how credible the photos are. For example, we no longer have hospital picture days, for what reasons would they drag sick patients outside to take photos, who is really benefiting from these images? Regardless, through course themes and our own research, we have learned a lot about healthcare in the 19th century Niagara Region. 
+
+Brock Archives and Special Collections - Gibson Library. Brock University, https://dr.library.brocku.ca/handle/10464/5. Accessed 25 Nov. 2021. 
+
+
+Niagara Public Falls (Ontario) Public Library. https://my.nflibrary.ca/. Accessed 25 Nov. 2021. 
+
